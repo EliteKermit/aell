@@ -5,7 +5,7 @@
 * [Cover](README.md)
 * [Prologue](chapter1.md)
 * [Mythos](mythos.md)
-  * Creation
+  * [Creation](mythos/creation.md)
 
 ## Physical Aspects of Aell
 
