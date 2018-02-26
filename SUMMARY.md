@@ -7,7 +7,9 @@
 * [Mythos](mythos.md)
   * [Creation](mythos/creation.md)
 
-## Physical Aspects of Aell
-
 ## Denizens of Aell
+
+## Natural Aspects of Aell
+
+## Commonwealths of Aell
 
