@@ -8,7 +8,7 @@
 ## History of Aell
 
 * [Mythos](mythos.md)
-  * [Creation](mythos/creation.md)
+* [Creation](mythos/creation.md)
 
 ## Geography of Aell
 
