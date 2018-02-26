@@ -4,7 +4,7 @@
 >
 > Alluin Farkana
 
-It is said that long before anything else existed in the world there was only Usle'A or Arche as it is known in the Prevalent Tongue. Arche was both a being and a place, had unlimited power and a size which reached the ends of everything. Arche is what was, is and will be. It is thought by some that Arche is a God or Deity, the most powerful one but this reasoning lacks proof as there has been no documented encounter with Arche by any civilization or creature. Arche is in essence the driving power behind the life force that flows through every being, creature, animal and plant as everything exist within Arche.
+It is said that long before anything else there was only Usle'A or Arche as it is known in the Prevalent Tongue. According to the legends Arche was both a being and a place, had unlimited power and size. Arche is what was and will ever be. Many think of Arche as a God or Deity, quite possibly the eldest and most powerful but this reasoning lacks proof as there has been no documented encounter with Arche by any civilization or creature which leads most scholars to place Arche in a category of its own. Others think that Arche is in essence the driving power behind the life force that flows through every being, creature, animal and plant as everything is said to have been created and exist within Arche itself. 
 
 For how long Arche existed alone it's anyone's guess. It could be thousands of eons or even more. But at some point it's speculated that two beings of unfathomable power with no specific shape and state were formed, either created by Arche or simply came to existence. The names given to them in the Elder Tongue were Nase, meaning Father and Isa which means Mother. Whether they were actually female or male is unspecified and probably not of much importance to them. It is speculated that after a while Mother and Father created the Fahindye, or the Antecedent also known as First Born. They were beings of great potential and even greater power. They were the ones that brought to life the first creatures and placed them in worlds of their own creation. They consequently created more worlds as well as creatures and gave them a language to communicate, the Elder Tongue or Dae'Ara'Thi. They created animals and plants and the first Nilsir or Concepts upon which the first civilizations where based. Those first Concepts had no form or shape but were driven by rules and were deeply embedded in the minds of all living things. All of their names have been lost in time but the most powerful among them were: Love, Law, Light, Death, Dream, Night, Nature, Na'dhel also known as Fate, E'Awale'As also known as Order and Hluar also known as Chaos.
 
@@ -16,7 +16,7 @@ Mother then argued with Father that enough death and destruction had occurred al
 
 The Nilsir then came to the Ellym and made an offer to create the world anew, together. The Ellym accepted and rules were put in place so that further fighting between them could incur.
 
-*  Each Ellym would create one and only one world which would remain in the vicinity of Araz'Uhs and Shyl'Uhs, or Sol, Sun and Argent, Moon.
+* Each Ellym would create one and only one world which would remain in the vicinity of Araz'Uhs and Shyl'Uhs, or Sol, Sun and Argent, Moon.
 * No Ellym would have the right to interfere with another's world or creations unless asked or given permission to.
 * No Ellym would create beings capable of bringing other creatures into existence or creating life.
 
@@ -34,8 +34,6 @@ The Ellym chose to create their worlds all around Araz'Uhs and Shyl'Uhs as a sig
 * Ashion'Ellym: Ashion first helped everyone else to create their world. Then getting ideas from most of them created her world which is now known as Crel. Having helped the other Ellym they were thankful to her and so each one of them gave a present to be placed in her world. Rus'Ellym gave a pair of each animal and plant from his world. Nie poured magic in the world giving great power to its denizens. Djaka allowed the spirits of the deceased to wander into the dreams of the living giving them some contact with their loved ones. Sue'Anar gave the creatures of Crel the freedom to choose their own destiny according to their desires. Laethe gave her Djakolehn orders to guide the fallen spirits to and from Djak'Ellym while Nymlaser, against Ashion's wishes gave all the creatures the lust for power. Finally Ze'Auh allowed the Ashionis to mate with the mortals creating a new race, the Ash'Alo'As the ancestors of the Lightborn or Adlae. With all these gifts Ashion created a vast world, bigger than any of the other worlds varying in nature and life.
 * Shkr'Ellym: Everything that remained of the Old Worlds, the ones created by the Antecedent was placed in a single world as a sign of respect. Mostly it was structures and other things left behind and in that regard Shkr'Ellym remained empty of life giving it a sense of abandonment and loneliness. Few ever visited this world and even less few chose to stay for prolonged periods of time.
 
-
-
 ### THE FIRST DOWNFALL OF THE GODS
 
 > Your influence on the life of mortals must come to an end. This is why I am doing this.
@@ -52,21 +50,19 @@ The Ellym were fighting alongside their own creations as well as various other D
 
 The mortals fed up with fighting this war and the losses they had to suffer just because the Gods decided to fight with Lyanthe as their leader rebelled against their creators. Choices had to be made, and on one side now all the mortals stood with Lyanthe as their leader while on the other side the remaining Ellym banded together with the help of the Ashionis, the Djakolehn and the Djinn. Ruse elected to remain out of the battle, one more time which was respected by both sides. Some of the Ashionis and Djinn decided to help the mortals and thus the war began anew. The Ashionis and Djinn on the side of the mortals gave them tremendous powers and even created magical living suits of armor for them, the Kreth’Naal. The war lasted ages and in the end, all but ruins remained of Ashion’Ellym and the other worlds. Only Rus’Ellym remained mainly untouched by the ravages of war.
 
-During the process of the war Lyanthe managed to kill Laethe and strike down Ashion which prompted a frenzied attack from Ze’Auh leading to his demise as well. She then took charge and asked the remaining forces of the Ellym to stand down as she believed they could come to a peaceful arrangement. And an agreement was made. 
+During the process of the war Lyanthe managed to kill Laethe and strike down Ashion which prompted a frenzied attack from Ze’Auh leading to his demise as well. She then took charge and asked the remaining forces of the Ellym to stand down as she believed they could come to a peaceful arrangement. And an agreement was made.
 
 * All connections between the worlds would be severed completely. The spirit of mortals who died would still end up in Djak’Ellym though, but no spirit would be allowed to contact the world of the living again.
 * The remaining Ellym, Ruse, Sue’Anar and Djaka would remain in their respective worlds and would never interfere with matters of other worlds.
 * And finally because all the war took ages which made some mortals create bonds with other worlds than theirs, it was allowed for everyone to choose the world they wanted to live in before all connections were severed.
 
-
-
 ### THE FINAL DEMISE OF THE GODS
 
-> What is a god to a non believer? 
+> What is a god to a non believer?
 >
 > Nathaniel Desmond Whytelaw
 
-For a long period of time there was peace between the realms of Etaen, helped by the fact that the links allowing someone to pass from one to another were gone. Specifically in the world of Crel, the Mortal Realm there was growth. The Demigods \(the children of the Ellym\), Ashionis and Djinn which chose to remain there were revered as Gods and soon a Pantheon was created. The main Gods worshipped by the mortals were: 
+For a long period of time there was peace between the realms of Etaen, helped by the fact that the links allowing someone to pass from one to another were gone. Specifically in the world of Crel, the Mortal Realm there was growth. The Demigods \(the children of the Ellym\), Ashionis and Djinn which chose to remain there were revered as Gods and soon a Pantheon was created. The main Gods worshipped by the mortals were:
 
 * Lyanthe rose to godhood and was given several nicknames, Godslayer being the prevailing one. She was thought as the Goddess of Freedom, Protection and Judgement.
 * Voljane was thought to be the God of Building, Smithing and Mining
@@ -79,9 +75,5 @@ For a long period of time there was peace between the realms of Etaen, helped by
 * Terrasina was thought as the Goddess of Earth, Forests and Mountains.
 * Delroth was thought as the God of Magic
 
-And the list goes on. Practically every mortal race chose to believe in different gods and deities. Others chose to worship the Dragons, beings of immense power which originated from the world of Rus’Ellym. They opted to defy the wishes of their creator, Ruse and fight alongside the mortals against the Ellym.  
-
-
-
-
+And the list goes on. Practically every mortal race chose to believe in different gods and deities. Others chose to worship the Dragons, beings of immense power which originated from the world of Rus’Ellym. They opted to defy the wishes of their creator, Ruse and fight alongside the mortals against the Ellym.
 
