@@ -4,6 +4,9 @@
 
 * [Cover](README.md)
 * [Prologue](chapter1.md)
+
+## History of Aell
+
 * [Mythos](mythos.md)
   * [Creation](mythos/creation.md)
 
@@ -24,4 +27,6 @@
 ## Magic of Aell
 
 ## Legends of Aell
+
+## Economies of Aell
 
