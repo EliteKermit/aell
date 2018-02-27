@@ -62,17 +62,9 @@ Appalled by this Ashion sought out to get the help of her husband, Ze'Auh and hi
 
 On the side of Ashion, the mortals were led by Lyanthe D'Moor, Ashion's own daughter after coupling with a mortal man, Ilham Daven. Lyanthe like all other demigods had extraordinary powers and was acting as the general of the army. At some point, unknown exactly how, Ruse learned that Nie tricked him into entering the fight which caused him to strike out in blind rage killing her instantly. He then retired from the fight as his world came under attack by the Djinn who were mourning the loss of their creator. Amidst the confusion, Voljane, a master blacksmith created a weapon using the blood of Nie which he gave to Lyanthe. The weapon, Night's Echo, also known throughout time as Godsbane, Hopender and Breaker of Mercy, was a sword and possessed the unique ability to allow even a mortal to wound a God in combat.
 
-Sensing an opportunity to rid themselves of their creator, seeing as their problems caused the war to start in the first place, Lyanthe devised a plan. She challenged Nymlaser to a duel, speaking to his ego and managed to kill him. Having lost all of their leaders the Djakolehn and what remained of Laethe's forces surrendered. 
+Sensing an opportunity to rid themselves of their creator, seeing as their problems caused the war to start in the first place, Lyanthe devised a plan. She challenged Nymlaser to a duel, speaking to his ego and managed to kill him. Having lost all of their leaders the Djakolehn and what remained of Laethe's forces surrendered. During the celebration of their win though, Lyanthe attacked and killed her own mother, Ashion which enraged Ze'Auh. Lyanthe suffered great wounds during their fight but managed to kill him putting an end to the dominion of the Ellym. Only Ruse, Djaka and Sue'Anar remained alive with Shkr and Saray remaining out of sight and refusing to be a part of any fighting. Seeing that Ruse had problems of his own fending off attacks from the Djinn and Djaka had no armies to begin with, Sue'Anar decided to retreat to her world as well, allowing Ashion'Ellym for the first time to be governed on its own.
 
--- The Ellym were fighting alongside their own creations as well as various other Deities that were created during this time by their union with mortals. These Deities had varying degrees of power but it was enough to compete against their parents. It’s not clear how, but Ruse learned that he was tricked by Nie into fighting which resulted in him killing her in cold blood and withdrawing himself from the war. The Djinn taken aback by the death of their Creator were forced to retreat after suffering heavy losses which gave a significant advantage to the forces of Laethe. Desperate to win, Ashion created a weapon of tremendous power from the blood of Nie which gave the power to its wielder to strike down anyone, even an Ellym. She trusted this weapon to her best fighter and daughter, Lyanthe D’Moor. Lyanthe managed to kill Nymlaser after tricking him into believing that her weapon was useless after all. Sue’Anar then withdrew from the fight, frightened by the power of the weapon. With this the balance tipped back in favor of Ashion and Ze’Auh.
-
-The mortals fed up with fighting this war and the losses they had to suffer just because the Gods decided to fight with Lyanthe as their leader rebelled against their creators. Choices had to be made, and on one side now all the mortals stood with Lyanthe as their leader while on the other side the remaining Ellym banded together with the help of the Ashionis, the Djakolehn and the Djinn. Ruse elected to remain out of the battle, one more time which was respected by both sides. Some of the Ashionis and Djinn decided to help the mortals and thus the war began anew. The Ashionis and Djinn on the side of the mortals gave them tremendous powers and even created magical living suits of armor for them, the Kreth’Naal. The war lasted ages and in the end, all but ruins remained of Ashion’Ellym and the other worlds. Only Rus’Ellym remained mainly untouched by the ravages of war.
-
-During the process of the war Lyanthe managed to kill Laethe and strike down Ashion which prompted a frenzied attack from Ze’Auh leading to his demise as well. She then took charge and asked the remaining forces of the Ellym to stand down as she believed they could come to a peaceful arrangement. And an agreement was made.
-
-* All connections between the worlds would be severed completely. The spirit of mortals who died would still end up in Djak’Ellym though, but no spirit would be allowed to contact the world of the living again.
-* The remaining Ellym, Ruse, Sue’Anar and Djaka would remain in their respective worlds and would never interfere with matters of other worlds.
-* And finally because all the war took ages which made some mortals create bonds with other worlds than theirs, it was allowed for everyone to choose the world they wanted to live in before all connections were severed.
+Confering with the Nilsir, Lyanthe and the mortals came to an arrangement. All connections between the worlds would be severed completely. The spirits of mortals who died would still end up in Djak’Ellym though, but no spirit would be allowed to contact the world of the living again. Also the remaining Ellym, Ruse, Sue’Anar and Djaka would remain in their respective worlds and would never interfere with matters of other worlds. Because the war lasted for ages though, several races from other worlds had taken a liking to Ashion'Ellym and vice versa. So before closing all portals and gateways each one was allowed to choose the world he wanted to live in. This created some odd mixtures between mortal and immortal races which remain to this day.
 
 ### THE FINAL DEMISE OF THE GODS
 
@@ -80,10 +72,10 @@ During the process of the war Lyanthe managed to kill Laethe and strike down Ash
 >
 > Nathaniel Desmond Whytelaw
 
-For a long period of time there was peace between the realms of Etaen, helped by the fact that the links allowing someone to pass from one to another were gone. Specifically in the world of Crel, the Mortal Realm there was growth. The Demigods \(the children of the Ellym\), Ashionis and Djinn which chose to remain there were revered as Gods and soon a Pantheon was created. The main Gods worshipped by the mortals were:
+For a long period of time there was peace, especially in Ashion'Ellym, where the demigods, now worshipped as proper Deities and their followers thrived. A Pantheon was soon created and some of them were worshipped more than others:
 
-* Lyanthe rose to godhood and was given several nicknames, Godslayer being the prevailing one. She was thought as the Goddess of Freedom, Protection and Judgement.
-* Voljane was thought to be the God of Building, Smithing and Mining
+* Lyanthe rose to godhood and was given several nicknames, Godslayer or Liberator. She was thought as the Goddess of Protection, Freedom and Judgement.
+* Voljane was thought to be the God of Smithing, Building and Mining
 * Neysa was thought to be the Goddess of Sea, Rivers and Lakes.
 * Askeris was thought as the God of Honor, Governance and Law.
 * Avonne was thought as the Goddess of War, Vengeance and Revenge
@@ -91,7 +83,26 @@ For a long period of time there was peace between the realms of Etaen, helped by
 * Zubair was thought as the god of Fire and Lightning.
 * Leametria was thought as the Goddess of Passion and Love.
 * Terrasina was thought as the Goddess of Earth, Forests and Mountains.
+* Ativen was thought as the God of Truth and Justice
+* Maltha was thought as the Goddess of Thieves and Luck
+* Shantella was thought as the Goddess of Travel and Commerce
 * Delroth was thought as the God of Magic
 
-And the list goes on. Practically every mortal race chose to believe in different gods and deities. Others chose to worship the Dragons, beings of immense power which originated from the world of Rus’Ellym. They opted to defy the wishes of their creator, Ruse and fight alongside the mortals against the Ellym.
+And the list goes on. Practically every mortal race chose to believe in different gods and deities or even to the Dragons, beings of immense power which originated from the world of Rus’Ellym. The Dragons opted to defy the wishes of their creator, Ruse and fight alongside the mortals against the Ellym even after he retreated from the war. Like the New Gods, there were some amongst the Dragons who possessed greater power:
+
+* Edhas, The Powerful
+* Faynophyrth, The Eternal Fire
+* Rinado, The White One
+* Churdierth, The Taker Of Life
+* Noatoissu, Champion Of Dragons
+* Gurrayl, The Careful
+* Zaphion, The Nocturnal
+* Kargin, The Mammoth
+* Aestrolion, The Wise
+* Jeothea, The Beautiful
+* Shorgulenth, Eater Of Sheep
+
+Like the New Gods, the Dragons possessed great power and were worshipped by the mortals even more in some cases. This soon caused friction between them as to who should 
+
+
 
