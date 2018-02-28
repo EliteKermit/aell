@@ -84,7 +84,7 @@ For a long period of time there was peace, especially in Ashion'Ellym, where the
 * Leametria was thought as the Goddess of Passion and Love.
 * Terrasina was thought as the Goddess of Earth, Forests and Mountains.
 * Ativen was thought as the God of Truth and Justice
-* Maltha was thought as the Goddess of Thieves and Luck
+* Maltha was thought as the Goddess of Thieves, Mischief and Luck
 * Shantella was thought as the Goddess of Travel and Commerce
 * Delroth was thought as the God of Magic
 
@@ -110,7 +110,7 @@ The Dragons and the Gods came to a disagreement on how to treat the newcomers. W
 
 As their numbers were much less, Voljane created magical living suits of armor for the mortals, the Kreth'Naal. These suits of armor provided the combatants with the strength and protection necessary to wage battle against the Gods and their minions. Nathan Whytelaw now nicknamed Duskbringer, managed to kill several deities including Lyanthe herself which caused them major concern and even forced her allies to work together with the Dragons. The war took countless lives and all of Aell was affected while in the meantime the Djakolehn and the forces of Sue'Anar continued to wreak havoc. Suggesting a truce to combat the common threat both sides focused their efforts on Aurelia and the enemies there. Soon enough they managed to push them back through the portal and a fortress was created around it to avoid anyone slipping through again.
 
-But the handful remaining Aurelians hadn't forgotten their plight and as soon as the threat was dealt with they returned to fighting. But the constant warring had decimated both sides and pretty soon there was none left to fight. Delroth sacrificed himself to banish all magic from Aell, preventing the Aellirians to use it at all. Wizards and mages lost their power and the Dragons reverted to a human form without magic to sustain them anymore. Even the remaining Gods themselves lost all their power and were forced hide in order to avoid death. 
+But the handful remaining Aurelians hadn't forgotten their plight and as soon as the threat was dealt with they returned to fighting. But the constant warring had decimated both sides and pretty soon there was none left to fight. Delroth sacrificed himself to banish all magic from Aell, preventing the Aellirians to use it at all. Wizards and mages lost their power and the Dragons reverted to a human form without magic to sustain them anymore. Even the remaining Gods themselves lost all their power and were forced hide in order to avoid death.
 
-Only 4 dragons remained alive at this point, even if they had to stay in their human form. From the Gods, the ones verified to still be alive were Maltha 
+Only five dragons, Shorgulenth, Faynophyrth, Jeothea, Kargin and Edhas remained alive at this point, forced to stay in their human form. From the Gods, the ones verified to still be alive were Maltha, Shantella, Askeris, Zubair and Leametria
 
